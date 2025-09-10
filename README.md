@@ -34,6 +34,7 @@ Proper care ensures your ETERESHOP products remain visually striking and functio
 - Keep in a **cool, dry place**, away from **direct sunlight**.
 - Avoid placing **heavy objects** on top.
 - **Transport with care** – avoid pressure or impact.
+- When transporting the costume, be sure to place a **soft** material between the mirrored layers of the costume to prevent them from scratching against each other.
 - Inspect regularly for **loose mirror tiles** and reattach with appropriate adhesive.
 - For intricate pieces, consider using **professional cleaning services**.
 
